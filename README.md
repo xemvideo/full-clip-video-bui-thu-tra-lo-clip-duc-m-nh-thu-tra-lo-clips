@@ -2,7 +2,12 @@
 
 Cảnh báo thủ đoạn lừa "chat sex" để cưỡng đoạt tài sản (CAO) Các đối tượng nhắn tin vô tình làm quen tâm sự rồi giả bộ nảy sinh tình cảm tự gửi cho bị hại những hình ảnh hở hang clip nhạy cảm
 
-3 điểm gây ngỡ ngàng trong video tóm dính hôn nhau của Gil Lê và Xoài Non Khoảnh khắc Gil Lê tình cảm bên Xoài Non đang gây bão trên mạng xã hội
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 NÓNG Châu Bùi bị quay lén trong WC của 1 studio chụp ảnh thủ đoạn gắn camera rất tinh vi! Dòng chia sẻ của Châu Bùi đang khiến cư dân mạng vô cùng phẫn nộ về hành vi quay lén của thủ phạm
 
